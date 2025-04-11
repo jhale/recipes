@@ -7,4 +7,4 @@
 ## Instructions
 Peel the avocados
 Mash up the avocado and then add all of the other ingredients.
-I need help
+Place in a bowl
