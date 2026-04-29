@@ -8,4 +8,4 @@
 * then, add lime.
 * mix.
 * put the salt in. mix again.
-*we have our Guacamole
+* place in a nice bowl.
