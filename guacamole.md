@@ -7,4 +7,4 @@
 * put one avocado in a bowl.
 * then, add lime.
 * mix.
-*then, add salt
+* put the salt in. mix again.
